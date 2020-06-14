@@ -1,3 +1,3 @@
 # ENJOY YOUR LIFE
 
-Visit [this](https://app.codelio.id/) 😘
+Visit [this](https://codelio.id/) 😘
